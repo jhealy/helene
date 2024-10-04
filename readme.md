@@ -6,6 +6,8 @@ Otherwise creativity is good.  My brain hurts and I'm out of creativity.
 
 The ONLY group I've seen so far, and who saved my arse - https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
 
+Edit/push or hitup pelican62 on facebook with suggestions for new links
+
 # GENERAL 
 - Cooling stations, internet, permits, laundry.  Guidelines say 'do not place debris in trash bags'  - https://www.stpete.org/news_detail_T30_R1158.php
 - FEMA - www.disasterassistance.gov or by telephone at 800-621-3362
@@ -18,6 +20,7 @@ The ONLY group I've seen so far, and who saved my arse - https://www.gofundme.co
 - Emergency management - Pinellas County- https://pinellas.gov/emergency-information/
 
 # BUSINESSES
+- SBA disaster site https://sba.gov/disaster
 - SBA low interest disaster assistance loans - https://www.sba.gov/funding-programs/disaster-assistance
 
 # CONSTRUCTION AND DEMO
