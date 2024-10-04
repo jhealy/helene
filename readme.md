@@ -28,6 +28,13 @@ The ONLY group I've seen so far, and who saved my arse - https://www.gofundme.co
 - FEMA transitional housing assistance - https://www.fema.gov/fact-sheet/transitional-sheltering-assistance#:~:text=Answer%3A%20Transitional%20Sheltering%20Assistance%20%28TSA%29%20is%20a%20FEMA,are%20not%20available%20after%20a%20presidentially%20declared%20disaster
 - Renter assistance - https://x.com/StPeteFL/status/1841871355744047118/photo/1
 
-# LABOR
-- Ruggers in need or request labor - donate or request help - https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
+# INSURANCE QUESTIONS
+- Ask Nick - https://www.facebook.com/615097120/posts/10159980185182121/?mibextid=WC7FNe&rdid=DzGyZczFGySCw2Ev
 
+# LABOR
+- Ruggers in need or request labor 
+-- donate go fund me https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
+-- join group if you need labor OR assistance - https://chat.whatsapp.com/ILZta7wQ7VND1NYAWNOmOa
+
+# MORTGAGE QUESTIONS
+- Ask Nick - https://www.facebook.com/615097120/posts/10159980185182121/?mibextid=WC7FNe&rdid=DzGyZczFGySCw2Ev
