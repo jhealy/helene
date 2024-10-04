@@ -46,6 +46,7 @@ The ONLY group I've seen so far, and who saved my arse - https://www.gofundme.co
 - Ruggers in need or request labor 
 -- donate go fund me https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
 -- join group if you need labor OR assistance - https://chat.whatsapp.com/ILZta7wQ7VND1NYAWNOmOa
+- SAFETY HARBOR - debris removal - https://cityofsafetyharbor.com/CivicAlerts.aspx?AID=916
 
 # MORTGAGE QUESTIONS
 - Ask Nick - https://www.facebook.com/615097120/posts/10159980185182121/?mibextid=WC7FNe&rdid=DzGyZczFGySCw2Ev
