@@ -49,3 +49,6 @@ The ONLY group I've seen so far, and who saved my arse - https://www.gofundme.co
 
 # MORTGAGE QUESTIONS
 - Ask Nick - https://www.facebook.com/615097120/posts/10159980185182121/?mibextid=WC7FNe&rdid=DzGyZczFGySCw2Ev
+
+# TAX REFUND
+- Property tax refund.  Apply before March 2025.  https://www.sarasotamagazine.com/news-and-profiles/2024/10/property-tax-relief-hurricane-helene 
