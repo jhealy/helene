@@ -20,6 +20,8 @@ Edit/push or hitup pelican62 on facebook with suggestions for new links
 - Emergency management - Pinellas County- https://pinellas.gov/emergency-information/
 
 # BUSINESSES
+ 
+- Emergency Bridge Loan program, which is administered by the Florida Department of Commerce - short-term, zero-interest working capital loans that are intended to “bridge the gap” between the time a disaster impacts a business and when a business has secured longer term recovery funding such as federally or commercially available loans, insurance claims, or other resources.  Up to $50k.  $100k for agriculture.  https://FloridaJobs.org/EBL . Or call (833) 832-4494 Monday through Friday from 8 a.m. to 5 p.m., Eastern Time.
 - SBA disaster site https://sba.gov/disaster
 - SBA low interest disaster assistance loans - https://www.sba.gov/funding-programs/disaster-assistance
 
