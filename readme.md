@@ -1,12 +1,11 @@
 # ABOUT
 
-Thanks to all the 'remote folks' offering to help.  If you want, FIND A HOTEL, drive down and I can help you find people to work with. 
+Thanks to all the 'remote folks' offering to help.  
 
 Otherwise creativity is good.  My brain hurts and I'm out of creativity.
 
-The ONLY group I've seen so far, and who saved my arse - https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
-
-Edit/push or hitup pelican62 on facebook with suggestions for new links
+# LIVE STORM RESOURCES
+- Collection of live camera links - https://www.yahoo.com/news/watch-hurricane-milton-come-ashore-105034265.html
 
 # GENERAL 
 - Cooling stations, internet, permits, laundry.  Guidelines say 'do not place debris in trash bags'  - https://www.stpete.org/news_detail_T30_R1158.php
@@ -20,12 +19,12 @@ Edit/push or hitup pelican62 on facebook with suggestions for new links
 - Emergency management - Pinellas County- https://pinellas.gov/emergency-information/
 
 # BUSINESSES
- 
 - Emergency Bridge Loan program, which is administered by the Florida Department of Commerce - short-term, zero-interest working capital loans that are intended to “bridge the gap” between the time a disaster impacts a business and when a business has secured longer term recovery funding such as federally or commercially available loans, insurance claims, or other resources.  Up to $50k.  $100k for agriculture.  https://FloridaJobs.org/EBL . Or call (833) 832-4494 Monday through Friday from 8 a.m. to 5 p.m., Eastern Time.
 - SBA disaster site https://sba.gov/disaster
 - SBA low interest disaster assistance loans - https://www.sba.gov/funding-programs/disaster-assistance
 
 # CONSTRUCTION AND DEMO
+- Pinellas debris removal map and status - https://tt-emi.maps.arcgis.com/apps/dashboards/43ce0fdb678342d3a779a88c34c61df1
 - Streamlined permitting - https://www.stpete.org/news_detail_T30_R1158.php
 
 # DONATE
@@ -50,7 +49,6 @@ Edit/push or hitup pelican62 on facebook with suggestions for new links
 - Cleanup hotline - connect residents with volunteers from local relief organizations, community groups, and faith communities. Does NOT assist with social services like food, clothing, shelter, insurance, or questions about FEMA registration.
 -- (844)-965-1386 - 
 -- https://www.wfla.com/news/florida/hotline-now-active-for-resident-who-need-assistance-with-damage-cleanup-from-helene/
-
 - Ruggers in need or request labor 
 -- donate go fund me https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
 -- join group if you need labor OR assistance - https://chat.whatsapp.com/ILZta7wQ7VND1NYAWNOmOa
