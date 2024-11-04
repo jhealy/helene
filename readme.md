@@ -69,6 +69,7 @@ Otherwise creativity is good.  My brain hurts and I'm out of creativity.
 - FEMA 50% repair rule - "If the repairs needed to bring a structure to its pre-damage condition will equal or exceed 50% of the market value" - https://www.fema.gov/fact-sheet/substantial-damage-quick-guide
 - FEMA swift current - fair market before flood from FEMA - https://www.fema.gov/grants/mitigation/learn/flood-mitigation-assistance/swift-current
 - How to find Actual Cash Value for FEMA 50% rule - https://www.facebook.com/StPeteCityCouncilD2/posts/pfbid026CRwxkFDWmFXyRjm5KfGMqXYKd7zF6tvH2dYWr5K9CWkRp7fBMWrDauCAg9x6Wd2l?rdid=lhblA2HCDGSim6Og
+- Permitting after a storm - pinellas - https://www.stpete.org/residents/public_safety/permitting_after_a_storm.php#:~:text=All%20homes%20located%20in%20the,in%20a%20flood%20hazard%20area
 
 
 # TAX REFUND
