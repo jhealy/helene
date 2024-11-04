@@ -4,12 +4,9 @@ Thanks to all the 'remote folks' offering to help.
 
 Otherwise creativity is good.  My brain hurts and I'm out of creativity.
 
-<<<<<<< HEAD
 # LIVE STORM RESOURCES
 - Collection of live camera links - https://www.yahoo.com/news/watch-hurricane-milton-come-ashore-105034265.html
 
-=======
->>>>>>> 3d5150198d94b3bae605a40a4ff92a773e13958b
 # GENERAL 
 - Cooling stations, internet, permits, laundry.  Guidelines say 'do not place debris in trash bags'  - https://www.stpete.org/news_detail_T30_R1158.php
 - FEMA - www.disasterassistance.gov or by telephone at 800-621-3362
@@ -39,6 +36,7 @@ Otherwise creativity is good.  My brain hurts and I'm out of creativity.
 # DONATE
 - Joe Healy gofundme - https://www.gofundme.com/f/help-joe-healy-rebuild-st-pete-house-after-hurricane-helene
 - Ronald McDonald house relief fund - https://rmhctampabay.givevirtuous.org/donate/relief?segmentCode=REFUNDSTEW2024
+- Russ Fustino gofundme - https://www.gofundme.com/f/help-russ-fustinos-recovery-from-hurricane-flood-damage
 - Ruggers in need - donate or request help - https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
 
 # FOOD
