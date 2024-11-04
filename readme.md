@@ -34,10 +34,10 @@ Otherwise creativity is good.  My brain hurts and I'm out of creativity.
 - Streamlined permitting - https://www.stpete.org/news_detail_T30_R1158.php
 
 # DONATE
-- Joe Healy gofundme - https://www.gofundme.com/f/help-joe-healy-rebuild-st-pete-house-after-hurricane-helene
-- Ronald McDonald house relief fund - https://rmhctampabay.givevirtuous.org/donate/relief?segmentCode=REFUNDSTEW2024
-- Russ Fustino gofundme - https://www.gofundme.com/f/help-russ-fustinos-recovery-from-hurricane-flood-damage
+- __Ronald McDonald__ house relief fund - https://rmhctampabay.givevirtuous.org/donate/relief?segmentCode=REFUNDSTEW2024
+- __Russ Fustino__  gofundme - https://www.gofundme.com/f/help-russ-fustinos-recovery-from-hurricane-flood-damage
 - Ruggers in need - donate or request help - https://www.gofundme.com/f/support-florida-rugby-players-after-hurricane-helene
+- __Joe Healy__ gofundme - https://www.gofundme.com/f/help-joe-healy-rebuild-st-pete-house-after-hurricane-helene
 
 # FOOD
 - Feeding Tampa Bay - https://feedingtampabay.org/ways-we-serve/disaster-relief
